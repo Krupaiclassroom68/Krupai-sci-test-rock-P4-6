@@ -1,0 +1,1 @@
+# Krupai-sci-test-rock-P4-6
